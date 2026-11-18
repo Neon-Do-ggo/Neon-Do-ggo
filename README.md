@@ -6,7 +6,7 @@
 
 Sou estudante de Ciencias da Computação do 2º Periodo em busca de novos rumos e com grande curiosidade na area da tecnologia
 
-Sou confiavel, ouvinte e receptivo, e aguardo uma oportunidade para ter meu primeiro emprego
+Sou confiavel, ouvinte e receptivo, e aguardo uma oportunidade para ter meu primeiro emprego e tambem em buscar de aprender mais ainda
 
 APENAS UM INICIANTE...
 
